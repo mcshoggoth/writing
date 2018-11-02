@@ -1,4 +1,4 @@
-Write about writer's block
+# Write about writer's block
 
 I'm not going to be able to write anything good.  What point is there, no one wants to here what i have to say.
 
@@ -9,5 +9,9 @@ I don't know the current culture enough to write anything good.
 
 When you can't make progress in writing, write about the process of writing instead. just write about anything. 
 Nick Cave: "There She Goes My Beautiful World" - about writer's block, muse, etc.
+
+# A Break from the main thing you're working on
+
+## Writing about something interesting rather than the work you are doing right now
 
 
