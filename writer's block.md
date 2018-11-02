@@ -59,3 +59,14 @@ His foot struck out, she woke up and heard the sound.
 ~
 When he woke, in the sun, he did not find her in bed. The sheets were a mess. He went down the
 stairs, to the table. the back door was open. she was gone.
+
+# Overly flowery language/words
+
+After the police left, after the CSI nerds had completed their task of finding and cataloging
+
+# Minor character with Major cacophany
+
+Before fred died, on the plain, he slept. He felt very tired and uncomfortable. It felt to him like
+his skin was rolling, vibrating. He felt a pressure in his chest. He was too young for a heart
+attack, perhaps it's a panic attack. He did feel panicked after seeing things on the path. That
+black swarm coming toward him
