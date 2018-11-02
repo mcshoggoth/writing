@@ -23,3 +23,39 @@ supernatural, but I have a hard time using that.
 
 what kind of horror do i want to write about?  The unexplainable, the mysterious, the inhuman
 perhaps, or things that aren't what they seem.
+
+# Abstract Concepts - to write about them
+
+## Trying to bring abstraction to life
+- rendering abstract words in concrete details
+	- racism, injustice, evil, ambition, growing old, salvation, poverty, growing up, sexual deceit,
+	  wealth
+	- "What is \_\_\_\_\_?"
+
+### Evil
+	1. Evil is Jeffrey Dahmer
+	2. Evil is Serial Killers
+	3. Evil is Child Molesters
+	4. Evil is not keeping your promises
+
+### Poverty
+	1. Poverty is dying of hunger
+	2. Poverty is sorrow
+	3. Poverty is death
+	4. Poverty is the bad smelling man on the bus next to me
+
+### Horror
+	1. Horror is the night when it sounds like the door opened
+	2. Horror is hearing someone upstairs only to realize that you're alone
+	3. Horror is the doorbell ringing and no one is there
+	4. Horror is an empty slot in the kitchen knife-block
+
+# Every word in the story has to be one syllable
+
+They went to a film. The name was "The Dead Thing." They were glad and scared at the same time.
+That night, in bed, while they slept, there was a sound. Like nails on wood. In his dreams, he saw
+shards of wood in skin. Nails on top. Smears of blood.
+His foot struck out, she woke up and heard the sound.
+~
+When he woke, in the sun, he did not find her in bed. The sheets were a mess. He went down the
+stairs, to the table. the back door was open. she was gone.
