@@ -28,4 +28,15 @@ $
 
 What is a specific memory or experience you associate with this place? Do your best to summon it, remember it in detail. Write an equal (and only equal!) number of lines/sentences/statements as Part A. Write in the ***PAST TENSE***.
 
+- - -
+It was spring, junior year of college.  I walked through the manicured campus with my Colorado Rockie's purple, black, and white, jacket on. It was raining. The jack was not as waterproof as I thought it would be.
 
+The campus was devoid of life. Some sports event drew the interest of most of the campus.
+
+I walked, and as I walked I felt: melancholia, alone, isolated, the weight of significance of life.
+I enjoyed those feelings, but also wished I could share them with someone. It is hard to share isolation with another person.
+the feeling of being "just me against the world" could also easily be "just us against the world" but if you add too many people it turns into "the world against a few" and you get lost in the void of a crowd.
+
+This feeling, I craved it. It was so hard to grab hold of.  It's the feeling of the world when it is empty. Halloween when you are alone. Christmas on your own, Thanksgiving, times of gathering where you have no one to gather with.  It is dissapointing, in such times, to actually meet another person.
+
+I returned, soaked, to my brick building, past the empty rooms.
